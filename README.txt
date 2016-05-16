@@ -1,1 +1,1 @@
-Open Online Course of Coursera 
+Open Online Course on Coursera 
